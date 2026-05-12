@@ -1,4 +1,4 @@
-#  
+#  best Scripts for anime vanguards is the best anime vanguards Script, featuring silent aim and no cooldown. Safe and powerful for all your needs.
 
 
 
